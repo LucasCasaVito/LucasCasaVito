@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LucasCasaVito (Lucas Casa de Vito)
+- Hi, I’m @LucasCasaVito (Lucas Casa de Vito)
 - 23 years old, born and raised in Brazil!
 - I’m interested in BlockChain, Crypto Trading Strategies, AI, and Engineering Applications.
 - I’m looking to collaborate cool stuff, reach out!
